@@ -1,1 +1,0 @@
-# paulatharwat.github.io
